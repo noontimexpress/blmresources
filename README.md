@@ -23,8 +23,9 @@ Safe Protesting, and How to Take Action - @chasevp_15 - https://docs.google.com/
 Black and Asian-American Feminist Solidarities: A Reading List - https://www.blackwomenradicals.com/blog-feed/black-and-asian-feminist-solidarities-a-reading-list
 Natl Resource List - https://tinyurl.com/y7m5z7cp - @botanicaldyke (twitter)
 south asian queer + trans collective - saqtc.org - https://www.saqtc.org/support-the-black-community
-
-
+The End of Policing (Free Ebook) by Alex S. Vitale - https://www.versobooks.com/books/2426-the-end-of-policing
+Black Lives Matter - blacklivesmatter.com
+Official George Floyd Memorial Fund - https://www.gofundme.com/f/georgefloyd
 
 
 

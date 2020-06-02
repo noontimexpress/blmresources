@@ -20,7 +20,7 @@ LA's Black-Owned Restaurants - https://docs.google.com/spreadsheets/d/18w-0RBhwB
 Youth Justice Coalition - bit.ly/yjcgift
 Resource Guide to Mental Health, 
 Safe Protesting, and How to Take Action - @chasevp_15 - https://docs.google.com/document/u/0/d/1KX4vB7LF-pRaH2mBAoA6PfTGL6D86XJ0VrixZL9-4YU/mobilebasic (https://tinyurl.com/ybffs9sm)
-Black and Asian-American Feminist Solidarities: A Reading List - https://www.blackwomenradicals.com/blog-feed/black-and-asian-feminist-solidarities-a-reading-list
+Black and Asian-American Feminist Solidarities: A Reading List - https://www.blackwomenradicals.com/blog-feed/black-and-asian-feminist-solidarities-a-reading-list (
 Natl Resource List - https://tinyurl.com/y7m5z7cp - @botanicaldyke (twitter)
 south asian queer + trans collective - saqtc.org - https://www.saqtc.org/support-the-black-community
 The End of Policing (Free Ebook) by Alex S. Vitale - https://www.versobooks.com/books/2426-the-end-of-policing
